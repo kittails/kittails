@@ -1,4 +1,8 @@
+
+
 <div align="center">
+
+![hydrokinesis](https://img.shields.io/badge/hydrokinesis-1,011,636-blue)
 
 ---
 

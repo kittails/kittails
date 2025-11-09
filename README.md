@@ -14,4 +14,8 @@ Heㅤwasㅤkindㅤ.ㅤHeㅤwantedㅤtoㅤhelpㅤmeㅤandㅤ...
 
 [rentry](https://rentry.co/kitswoonami)ㅤ.ㅤ[atabook](https://kitsunami.atabook.org/)ㅤ.ㅤ[strawpage](https://suwav.straw.page/)
 
+---
+
+idleㅤstatus:ㅤAFKㅤ/ㅤofftab
+
 </div>
